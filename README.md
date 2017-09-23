@@ -1,1 +1,0 @@
-# alexfoyodearmas.github.io
